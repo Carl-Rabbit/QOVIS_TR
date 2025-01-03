@@ -1,1 +1,0 @@
-# QOVIS_TR
